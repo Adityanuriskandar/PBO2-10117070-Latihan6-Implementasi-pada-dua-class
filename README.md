@@ -1,0 +1,1 @@
+# PBO2-10117070-Latihan6-Implementasi-pada-dua-class
